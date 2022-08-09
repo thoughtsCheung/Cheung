@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Cheung
 - 😶 I’m a UI designer / Photographer / Painter
 - 📷 Ins: https://www.instagram.com/thoughts.cheung/
-- Bé Behance: https://www.behance.net/thoughts_Cheung
+- 🐳 Behance: https://www.behance.net/thoughts_Cheung
 - 📫 wenlei.zhang@hotmail.com
 
 <!---
